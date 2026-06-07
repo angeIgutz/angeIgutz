@@ -18,7 +18,7 @@
 
 𔓕 i dont use tonetags, if you need them youll have to specify
 
-𔓕 colourblind / visually impaired, if my pony colours look off thats probably why
+𔓕 colourblind, sometimes my colours are off a little. 
 
 　<p align="center">![](http://i.picasion.com/gl/93/lOTI.gif)</p>
 

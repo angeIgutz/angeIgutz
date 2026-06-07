@@ -1,9 +1,8 @@
-## wip
+<img width="2048" height="1152" alt="Untitled199_20260606232252" src="https://github.com/user-attachments/assets/dee4d269-b059-4c14-9d66-c4dc91adfab0" />
 
-<!--
-**angeIgutz/angeIgutz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+
+
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
@@ -13,4 +12,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+
 -->

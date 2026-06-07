@@ -18,7 +18,7 @@
 
 𔓕 i dont use tonetags, if you need them youll have to specify
 
-𔓕 colourblind, sometimes my colours are off a little. 
+𔓕 colourblind, sometimes my colours are off a little, can and will probably effect some of my ponies.
 
 　<p align="center">![](http://i.picasion.com/gl/93/lOTI.gif)</p>
 

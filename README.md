@@ -2,7 +2,9 @@
  
 <img src="tumblr_e12e274a891685f40874f861d04faba0_bd3cc48b_2048.png" width="892" height="196">
 
-> ### I go by Cherie & any variation of that name (cher, cherry, etc)!
+
+
+> ### I go by Cherie & any variation of that name (cher, cherry, etc)! 
 
  𔓕 9teen & gemini
 
@@ -15,6 +17,8 @@
 𔓕 i like to talk and will take any chance to start a conversation, if you want me to leave you alone lmk
 
 𔓕 i dont use tonetags, if you need them youll have to specify
+
+𔓕 colourblind / visually impaired, if my pony colours look off thats probably why
 
 　<p align="center">![](http://i.picasion.com/gl/93/lOTI.gif)</p>
 

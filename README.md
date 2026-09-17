@@ -8,11 +8,11 @@
 
  𔓕 9teen & gemini
 
- 𔓕 most of the time I'll be in the homestuck area on 18+, feel free to int!
+ 𔓕 most of the time I'll be in the homestuck area on 18+, feel free to int! might be @ safe server in LMK area. 
 
 𔓕 whisper if you want to talk im usuallyyyy afk but i do like to pony-watch too.
 
-𔓕 huge into homestuck, fmab, lego monkie kid, and kny but i also dabble in jjk, nanbaka, hxh, danganronpa, stars align, etc etc.
+𔓕 huge into homestuck, fmab, lego monkie kid, jttw, and kny but i also dabble in jjk, nanbaka, hxh, danganronpa, stars align, etc etc.
 
 𔓕 i like to talk and will take any chance to start a conversation, if you want me to leave you alone lmk
 

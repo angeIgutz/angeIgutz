@@ -23,4 +23,5 @@
 　<p align="center">![](http://i.picasion.com/gl/93/lOTI.gif)</p>
 　<p align="center">
  
- <img src="d8d0fe2d20bed3efb61265267f6dbc35-removebg-preview.png" width="500" height="500">
+<p align="center">
+    <img src="d8d0fe2d20bed3efb61265267f6dbc35-removebg-preview.png">

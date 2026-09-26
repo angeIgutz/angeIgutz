@@ -21,7 +21,5 @@
 𔓕 colourblind, sometimes my colours are off a little, can and will probably effect some of my ponies.
 
 　<p align="center">![](http://i.picasion.com/gl/93/lOTI.gif)</p>
-　<p align="center">
- 
 <p align="center">
     <img src="d8d0fe2d20bed3efb61265267f6dbc35-removebg-preview.png" width="300" height="300">

@@ -18,7 +18,10 @@
 
 𔓕 i dont use tonetags, if you need them youll have to specify
 
-𔓕 colourblind, sometimes my colours are off a little, can and will probably effect some of my ponies.
+𔓕 colourblind, sometimes my colours are off a little, can and will probably effect some of my ponies. 
+
+𔓕 i do not "remake my ponies". i do not "upgrade my pony style". i keep my 2023-2024 ponies and if they look bad or outdated THEY STAY LIKE THAT.   
+<img src="4f7e9158bdd1ee78ab637d696767b38d.jpg" width="300" height="300">
 
 　<p align="center">![](http://i.picasion.com/gl/93/lOTI.gif)</p>
 <p align="center">

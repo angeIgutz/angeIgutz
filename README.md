@@ -1,28 +1,28 @@
 <p align="center">
  
-<img src="tumblr_e12e274a891685f40874f861d04faba0_bd3cc48b_2048.png" width="892" height="196">
+<img src="wukonggh_20261022203947.png" width="892" height="230">
+<img src="https://64.media.tumblr.com/6178d3c85e9d199bfafd5704495a01d0/70f68352ef186324-42/s1280x1920/2d1231e234ae5ecf28d08f00216b00abf9df62a6.pnj" width="800">
 
+<h3 align="center">
+ 
+   I go by Cherie & any variation of that name (cher, cherry, etc)!
+ 
+   🌥️
+<h4 align="center">
+𔓕 19yr old ( -16 iwc ) & gemini, always feel free to int
 
+ 𔓕 i dont use tonetags, tell me if you need them
 
-> ### I go by Cherie & any variation of that name (cher, cherry, etc)! 
+ 🌤️
 
- 𔓕 9teen & gemini
+ 𔓕 primary interests are lego monkie kid(lego in general), homestuck, jttw
 
- 𔓕 most of the time I'll be in the homestuck area on 18+, feel free to int! might be @ safe server in lego area. 
+ 𔓕 others include sae itoshi, kny, jjk, nanbaka, danganronpa, hxh, jjba, etc. bluelock i guess.
 
-𔓕 whisper if you want to talk im usuallyyyy afk but i do like to pony-watch too.
+ 𔓕 colourblind, some of my pony colours will be off
 
-𔓕 huge into homestuck, fmab, lego monkie kid, jttw, and kny but i also dabble in jjk, nanbaka, hxh, danganronpa, stars align, etc etc.
-
-𔓕 i like to talk and will take any chance to start a conversation, if you want me to leave you alone lmk
-
-𔓕 i dont use tonetags, if you need them youll have to specify
-
-𔓕 colourblind, sometimes my colours are off a little, can and will probably effect some of my ponies. 
-
-𔓕 i do not "remake my ponies". i do not "upgrade my pony style". i keep my 2023-2024 ponies and if they look bad or outdated THEY STAY LIKE THAT.   
-<img src="4f7e9158bdd1ee78ab637d696767b38d.jpg" width="300" height="300">
-
-　<p align="center">![](http://i.picasion.com/gl/93/lOTI.gif)</p>
+ <img src="https://64.media.tumblr.com/066bd9678b5aacc2d90bf5d567dc1ecc/b15d23a765658ea4-3b/s1280x1920/c7c463b85a370cda4705f0a7d9f11cc24f82d0a9.pnj" width="800" height="">
+ 
+　<p align="center">![](http://i.picasion.com/gl/93/mt0o.gif)</p>
 <p align="center">
-    <img src="d8d0fe2d20bed3efb61265267f6dbc35-removebg-preview.png" width="300" height="300">
+    

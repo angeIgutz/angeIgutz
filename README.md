@@ -9,9 +9,11 @@
  
    🌥️
 <h4 align="center">
-𔓕 19yr old ( -16 iwc ) & gemini, always feel free to int
+𔓕 19yr old ( -16 iwc )
+ 
+𔓕 always feel free to int or c+h
 
- 𔓕 i dont use tonetags, tell me if you need them
+𔓕 i dont use tonetags, tell me if you need them
 
  🌤️
 

@@ -17,11 +17,14 @@
 
  🌤️
 
- 𔓕 primary interests are lego monkie kid(lego in general), homestuck, jttw
+ 𔓕 primary interests are lego monkie kid(lego in general), homestuck, jttw, technoblade
 
  𔓕 others include sae itoshi, kny, jjk, nanbaka, danganronpa, hxh, jjba, etc. bluelock i guess.
 
+ 𔓕 talk to me about lego monkie kid storytelling please!!please!!! not just yaoi.
+
  𔓕 colourblind, some of my pony colours will be off
+ 
 
  <img src="https://64.media.tumblr.com/066bd9678b5aacc2d90bf5d567dc1ecc/b15d23a765658ea4-3b/s1280x1920/c7c463b85a370cda4705f0a7d9f11cc24f82d0a9.pnj" width="800" height="">
  
